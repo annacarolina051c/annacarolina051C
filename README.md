@@ -10,5 +10,5 @@ palmerense 💚
 instagram: annawdk7
 tt: anna_xj6
 
-https://tenor.com/pt-PT/view/mc-kevin-gif-22695787
+https://media.tenor.com/cdshbbDOIz8AAAAd/mc-kevin.gif
 
